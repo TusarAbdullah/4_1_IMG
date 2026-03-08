@@ -1,3 +1,7 @@
 # 4_1_IMG
-</br>
-fdfds
+
+
+
+# pora baki
+- Industry & Operations Management
+- 
